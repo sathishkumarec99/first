@@ -1,3 +1,0 @@
-# first
-demo
-saythiosj kumar
